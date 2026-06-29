@@ -1,4 +1,4 @@
-# 
+# Personnalisé Camtasia modèles pour Mac OS | Exclusif Camtasia modèles pour PC Windows. Avec édition MIDI et fonctionnalités DAW — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
